@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Axonbeam
-- 👀 I’m interested in adding a finish touch to the projects
+- 👀 I’m interested in adding a finishing touch to the projects
 - 🌱 I’m currently pursuing MCA from Brainware University
 - 💞️ I’m looking to collaborate on multiple statup projects 
 - 📫 You can reach me via my email_id-amitabhranjan1079@gmail.com
